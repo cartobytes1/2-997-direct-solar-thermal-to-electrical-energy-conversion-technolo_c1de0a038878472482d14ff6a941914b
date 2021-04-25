@@ -1,0 +1,1 @@
+# 2-997-direct-solar-thermal-to-electrical-energy-conversion-technolo_c1de0a038878472482d14ff6a941914b
